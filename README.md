@@ -1,2 +1,0 @@
-# counterjsapp
-hbhbhkbhb
